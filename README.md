@@ -1,1 +1,2 @@
-![my-removebg-preview](https://github.com/user-attachments/assets/553ee2c2-91ec-4f0e-ace7-1eb741f3d4f7)
+
+<img width="934" alt="Screenshot 2025-02-13 231335" src="https://github.com/user-attachments/assets/85064e54-a92a-46fe-842a-8eff6a3dc58f" />
